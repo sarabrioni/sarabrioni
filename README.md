@@ -2,7 +2,7 @@
  ### I'm IT Sourcer at ManpowerGroup
  #### <https://talentsolutions.manpowergroup.com/>
 
-###### - 🌎🌍🌏 Polyglot | IT | ES | EN | FR 
+###### - 🌎🌍🌏 Polyglot and translation lover | IT | ES | EN | FR 
 ###### - 🔥 Passionate about 🎨 art, 🎬 cinema, 🎭 theater, 📚 literature, 🎶 music and 🤸‍♀️ sports
 ###### - 🔎 Improving: sourcing skills
 
